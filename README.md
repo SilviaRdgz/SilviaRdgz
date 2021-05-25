@@ -1,5 +1,7 @@
+<img align='center' src='https://github.com/SilviaRdgz/SilviaRdgz/blob/main/Banner_Github%20(1).png'/>
 
-Welcome 🤘 
+
+### Welcome 🤘 
 
 I'm a Frontend Developer who wants to create digital experiences that impact people's lives. 
 
