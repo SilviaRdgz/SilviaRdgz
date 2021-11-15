@@ -9,7 +9,7 @@ With a degree in Psychology and early beginnings internationally rooted in Music
 
 When I'm not coding, I'm probably learning something new or making something new. I love to build and restore furniture and objects, I am obsessed with pleasant visual imagery, analogue photography, flea markets, music and roller skating, among many other things! Because I'm a jack of all trades and master of some!
 
-On this account you will find the projects completed during my studies at [Ironchack](https://www.ironhack.com/en) and traineeship at PXL.Widgets, for now! Soon to be fillup up with some stuff from my personal universe and the work projects I'm proud of.
+On this account you will find the projects completed during my studies at [Ironchack](https://www.ironhack.com/en) and traineeship at [PXL.Widgets](https://endeavourheroes.nl/onze-heroes/), for now! Soon to be fillup up with some stuff from my personal universe and the work projects I'm proud of.
 
 Stay tuned 💋
 <!---
